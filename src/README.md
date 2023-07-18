@@ -16,7 +16,4 @@ Finally, Chapter 9 looks at the future of interviewing, exploring emerging trend
 
 Throughout the book, you'll find real-world examples and stories of successful interviewing experiences, as well as practical exercises and tips for putting the strategies into practice. By the end of the book, you'll have a solid understanding of what it takes to master the art of interviewing and achieve success in your career.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
