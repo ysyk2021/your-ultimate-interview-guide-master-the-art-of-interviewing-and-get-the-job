@@ -1,4 +1,4 @@
-Chapter 2: Strategies for Staying Top-of-Mind with Hiring Managers
+Strategies for Staying Top-of-Mind with Hiring Managers
 ==================================================================
 
 In the competitive job market, it's crucial to stay top-of-mind with hiring managers throughout the hiring process. This chapter explores effective strategies that will help you maintain visibility and leave a lasting impression on potential employers.

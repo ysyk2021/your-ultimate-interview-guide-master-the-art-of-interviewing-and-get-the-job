@@ -1,4 +1,4 @@
-Chapter 3: What to Do If You Don't Get the Job
+What to Do If You Don't Get the Job
 ==============================================
 
 Not landing a job offer can be disheartening and demotivating. However, how you handle rejection and turn it into an opportunity for growth can make a significant difference in your job search journey. This chapter provides guidance on what to do if you don't get the job and offers strategies to help you bounce back stronger.
