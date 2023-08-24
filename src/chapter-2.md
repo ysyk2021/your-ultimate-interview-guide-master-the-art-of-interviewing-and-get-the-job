@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Interview Process
-==============================================
 
 As you start preparing for a job interview, it's important to understand the interview process. In this chapter, we will discuss the different types of job interviews, what to expect during the interviewing process, and how to prepare for each stage of the interview process.
 

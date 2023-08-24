@@ -1,5 +1,3 @@
-Controlling your own nonverbal cues
-==================================================================================
 
 Nonverbal communication is a vital aspect of job interviews and is just as important as verbal communication. Your body language can convey confidence, professionalism, and enthusiasm for the position. In this chapter, we'll discuss the importance of controlling your own nonverbal cues during job interviews.
 

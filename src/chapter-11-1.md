@@ -1,5 +1,3 @@
-Reading and interpreting body language
-=====================================================================================
 
 During a job interview, nonverbal communication is just as important as your verbal responses. Your body language can convey confidence, professionalism, and enthusiasm for the position. In this chapter, we'll discuss the importance of nonverbal communication in job interviews and provide tips for reading and interpreting body language.
 

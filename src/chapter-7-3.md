@@ -1,5 +1,3 @@
-Providing Evidence of Your Qualifications
-====================================================
 
 In this chapter, we will discuss the importance of providing evidence of your qualifications during a job interview. Demonstrating concrete proof of your skills, knowledge, and accomplishments can greatly enhance your credibility as a candidate and increase your chances of securing the job. By following the steps below, you will learn effective strategies to provide compelling evidence that showcases your qualifications.
 

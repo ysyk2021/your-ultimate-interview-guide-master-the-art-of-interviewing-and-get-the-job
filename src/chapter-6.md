@@ -1,5 +1,3 @@
-Chapter 6: Answering Common Interview Questions
-===============================================
 
 Interviews often include common questions that can feel overwhelming to answer. In this chapter, we'll explore techniques for answering common interview questions, handling difficult interview questions and situations, and communicating effectively during the interview.
 

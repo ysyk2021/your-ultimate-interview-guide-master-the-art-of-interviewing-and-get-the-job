@@ -1,5 +1,3 @@
-Techniques for Answering Common Interview Questions
-====================================================================================================
 
 Interviews can be nerve-wracking, but preparing for common interview questions can help you feel more confident and prepared. In this chapter, we'll discuss techniques for answering common interview questions effectively.
 

@@ -1,5 +1,3 @@
-Crafting a Resume and Cover Letter That Stand Out
-==========================================================================================
 
 Your resume and cover letter are critical components of your personal brand and can often determine whether you get an interview. In this chapter, we'll discuss strategies for crafting a resume and cover letter that showcase your skills and experiences and help you stand out from other candidates.
 

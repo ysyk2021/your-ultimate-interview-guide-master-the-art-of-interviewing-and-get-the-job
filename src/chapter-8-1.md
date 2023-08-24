@@ -1,5 +1,3 @@
-Phone and Video Interviews
-===================================
 
 In this chapter, we will delve into the intricacies of phone and video interviews. With advancements in technology, employers often conduct initial screening interviews or even full interviews remotely. It's essential to adapt your interview skills to these formats to maximize your chances of success. This chapter provides valuable insights and practical tips to help you excel in phone and video interviews.
 

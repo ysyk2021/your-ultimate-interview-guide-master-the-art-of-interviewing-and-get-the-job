@@ -1,5 +1,3 @@
-Chapter 11: Mastering Nonverbal Communication
-=============================================
 
 Nonverbal communication can be just as important as verbal communication in an interview setting. Your body language, facial expressions, and other nonverbal cues can convey a lot about your confidence, personality, and interest in the job. In this chapter, we'll explore techniques for reading and interpreting body language, controlling your own nonverbal cues, and creating a positive first impression.
 

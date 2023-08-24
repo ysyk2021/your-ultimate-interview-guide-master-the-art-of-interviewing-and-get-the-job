@@ -1,5 +1,3 @@
-Proven Methods for Making a Lasting Impact on the Interviewer
-================================================================================================================================
 
 A job interview is an opportunity to show your skills, experience, and personality to a potential employer. It's important to approach the interview with a strategic mindset that will help you make a lasting impact on the interviewer. In this chapter, we'll explore proven methods for mastering the art of interviewing and landing the job.
 

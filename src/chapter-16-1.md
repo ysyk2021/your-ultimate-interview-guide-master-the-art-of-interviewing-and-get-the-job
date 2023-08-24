@@ -1,5 +1,3 @@
-Summary of Key Points
-=================================
 
 Interviewing can be a challenging and nerve-wracking process, but with the right preparation and mindset, you can succeed in any job interview. In this guide, we explored key strategies and techniques for mastering the art of interviewing and landing your dream job. Here's a summary of the key points covered in each chapter:
 

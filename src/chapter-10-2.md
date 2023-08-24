@@ -1,5 +1,3 @@
-Tips for researching and determining fair compensation
-===================================================================================================
 
 Congratulations! You've made it through the interview process, and the employer has extended a job offer. Now it's time to focus on negotiating your salary and benefits. Negotiating your compensation is an essential part of the hiring process, and it's crucial to ensure that you're being paid fairly for your skills and experience. In this chapter, we'll discuss tips for researching and determining fair compensation before negotiating with your employer.
 

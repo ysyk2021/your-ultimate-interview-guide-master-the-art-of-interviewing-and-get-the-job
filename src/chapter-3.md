@@ -1,5 +1,3 @@
-Chapter 3: Researching the Company and Position
-===============================================
 
 Researching the company and position you are applying for is essential to ace your job interview. Without proper preparation, it can be challenging to impress the interviewer and stand out from other candidates. In this chapter, we will discuss the techniques for researching a company and position to prepare yourself thoroughly for an interview.
 

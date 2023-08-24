@@ -1,5 +1,3 @@
-Techniques for Managing Interview Anxiety
-====================================================
 
 In this chapter, we will explore various techniques to help you effectively manage interview anxiety. Job interviews can often be nerve-wracking, but with the right strategies, you can overcome anxiety and perform your best. By implementing the following techniques, you'll be better equipped to navigate the interview process with confidence and composure.
 

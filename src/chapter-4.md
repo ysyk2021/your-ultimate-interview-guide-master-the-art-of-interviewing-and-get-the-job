@@ -1,5 +1,3 @@
-Chapter 4: Building Your Personal Brand
-=======================================
 
 Your personal brand is your unique identity as a professional. It encompasses your skills, experience, and values, and can make you stand out from other job candidates. In this chapter, we'll explore how to develop a strong personal brand, create a professional online presence, and craft a resume and cover letter that stand out.
 

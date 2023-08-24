@@ -1,5 +1,3 @@
-Group Interviews
-===========================
 
 In today's competitive job market, group interviews have become increasingly common. These interviews involve multiple candidates being assessed simultaneously by a panel of interviewers. Group interviews provide employers with an opportunity to evaluate candidates' interpersonal skills, teamwork abilities, and how they perform in a group setting. This chapter explores strategies and tips to help you navigate and succeed in group interviews.
 

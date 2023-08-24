@@ -1,5 +1,3 @@
-Future Directions for Interview Preparation and Success
-===================================================================
 
 Interviewing is an ever-evolving process, and as technology changes and the job market evolves, so too must our strategies for preparing and succeeding in interviews. In this chapter, we'll explore some future directions for interview preparation and success.
 

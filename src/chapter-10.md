@@ -1,5 +1,3 @@
-Chapter 10: Negotiating Salary and Benefits
-===========================================
 
 After receiving an offer for a job, the next step is negotiating your salary and benefits package. This can be a daunting process, but with the right preparation, you can successfully negotiate a compensation package that meets your needs. In this chapter, we'll explore techniques for understanding the negotiation process, tips for researching and determining fair compensation, and strategies for negotiating benefits and perks.
 

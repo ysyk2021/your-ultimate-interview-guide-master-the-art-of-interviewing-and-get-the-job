@@ -1,5 +1,3 @@
-Chapter 14: Building Your Interviewing Skills Toolkit
-=====================================================
 
 Building a toolkit of interviewing skills is essential to succeeding in today's competitive job market. In this chapter, we'll discuss tools and resources for interview preparation and success, techniques for continuous improvement of your interviewing skills, and identifying areas for improvement and how to address them.
 

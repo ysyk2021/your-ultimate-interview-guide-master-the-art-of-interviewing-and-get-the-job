@@ -1,5 +1,3 @@
-Communicating Effectively During the Interview
-===============================================================================================
 
 Effective communication during an interview is key to landing the job. In this chapter, we'll discuss strategies for answering common interview questions and communicating effectively throughout the interview process.
 

@@ -1,5 +1,3 @@
-Developing a Strong Personal Brand
-===========================================================================
 
 Developing a strong personal brand is critical to standing out in the job market and landing your dream job. In this chapter, we'll discuss strategies for developing a strong personal brand.
 
